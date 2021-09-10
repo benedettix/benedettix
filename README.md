@@ -1,5 +1,5 @@
 - 👋 Hi, I’m <strong>@benedettix</strong>
-- 👀 I’m interested in gaining new knowledge and learning as much as possible about web design.
+- 👀 I’m interested in gaining muscle.
 - 🌱 I’m currently learning about web design.
 - 📫 benedetiluka@gmail.com - <strong>@luka_benedetti</strong>
 
