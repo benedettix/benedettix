@@ -1,4 +1,2 @@
-- Hi, I’m <strong>@benedettix</strong>
-- Hello, I have been involved in front-end development for a long time and I enjoy doing the work..
 - 📫 benedetiluka@gmail.com - <strong>@luka_benedetti</strong>
 - LINKED IN : https://www.linkedin.com/in/luka-benedetti-66594b172/
